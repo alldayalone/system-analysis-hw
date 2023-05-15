@@ -1,0 +1,1 @@
+[fihttps://www.figma.com/file/xdCQoQ30Wpho3mVEaefPfq/Event-storming-(Community)?type=whiteboard&node-id=0%3A1&t=8jBXR5ExSeuYpgEU-1](https://www.figma.com/file/xdCQoQ30Wpho3mVEaefPfq/Event-storming-(Community)?type=whiteboard&node-id=0%3A1&t=8jBXR5ExSeuYpgEU-1)
